@@ -1,1 +1,0 @@
-# smc2026-1st-presentation
